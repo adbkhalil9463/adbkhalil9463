@@ -1,5 +1,5 @@
 ## Hi there 👋
-![Khalil](https://github.com/adbkhalil9463/adbkhalil9463/assets/166882042/f1948d14-d3e1-45bf-ae6f-e49bb91546e5)
+![Khalil (Small) (Custom)](https://github.com/adbkhalil9463/adbkhalil9463/assets/166882042/f9ef698c-a231-4512-9dbb-cb0eecf0b2f2)
 
 The reason i'm here is to familiarize myself with Github, the programming development processes and systems, & to connect with like minded people that we can share knowledge, experience, ideas and collaborations.
 
